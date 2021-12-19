@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @BIGDAMNHERO6
-- 👀 I’m interested in tities! 
+- 👋 Hi, I’m @BIGDAMNHERO6 aka SAM
+- 👀 I’m interested in titties! 
 - 🌱 I’m currently learning animation
 - 💞️ I’m looking to collaborate on animated / video game projects
 - 📫 How to reach me : discord- Bigdamnhero6#8520
